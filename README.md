@@ -1,0 +1,1 @@
+# strassnova-guncelleme
